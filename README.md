@@ -42,4 +42,5 @@ Convertirme en un profesional capaz de **crear soluciones tecnológicas sólidas
 
 📫 **Contacto:**  
 [LinkedIn](www.linkedin.com/in/johan-peña-espejo-72879425a) 
+
 📧 johanpe050702@gmail.com 
